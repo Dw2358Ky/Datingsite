@@ -4,7 +4,7 @@ Random guy on my weekend in Paris and let him cum on me
 <html>
 <head>
     <meta charset="utf-8" />
-    <title>random guy on my weekend in Paris and let him cum on me</title>
+    <title>Random guy on my weekend in Paris and let him cum on me</title>
 </head>
 <body>
     <h1>random guy on my weekend in Paris and let him cum on me</h1>
